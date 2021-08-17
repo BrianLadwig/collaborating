@@ -1,4 +1,7 @@
 # collaborating
+Angela
+collaborating
 
 
-### Adrean's edit 1
+When nothing is going right, go left - Angela
+
